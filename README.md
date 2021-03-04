@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @LetMeWoosh
 - 👀 I’m interested in something
 - 🌱 I’m currently learning more
-- 💞️ I’m looking to collaborate on something
 - 📫 Reach me thru discord, Woosh#0001
